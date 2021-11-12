@@ -1,1 +1,0 @@
-# G-rsel-Programlama2
